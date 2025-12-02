@@ -6,6 +6,6 @@
 
 👯 I’m looking to collaborate on anything! Message me and let's talk!! :)
 
-📫 Visit my Portfolio: [sejalpurohit.github.io](sejalpurohit.github.io/projects) 
+📫 Visit my Portfolio: [sejalpurohit.github.io](https://sejalpurohit.github.io/) 
 
 ✉️ [sejalpurohit3195@gmail.com](mailto:sejalpurohit3195@gmail.com)
